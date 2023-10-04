@@ -1,5 +1,5 @@
 - 👋 Olá, sou Eduardo de LUca 
-- 👀 Sou esrudante da escola estadual Alexandre Rodrigues Nogueira 
+- 👀 Sou estudante da escola estadual Alexandre Rodrigues Nogueira 
 - 🌱 Sou da série do 3A, sou aluno do professor Leonardo nas aulas de T.I
 - 💞️ Tenho uma enorme paixão em videogames
 - 📫 Nas horas vagas eu crio poemas 
